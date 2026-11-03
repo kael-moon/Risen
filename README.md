@@ -211,4 +211,4 @@ Risen is available as a full free version, providing players with complete acces
 Don't miss out on your chance to explore the fascinating world of Risen — download it now and start your adventure today!
 
 ---
-**Last updated:** 2026-11-02 19:10:32 UTC
+**Last updated:** 2026-11-03 01:59:29 UTC
